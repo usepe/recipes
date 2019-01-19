@@ -14,4 +14,4 @@
 1. Mezclar bien los 2 huevos con la taza de azúcar (no batir)
 2. Agregar el aceite y la ralladura o esencia y mezclar bien.
 3. Ir agregando harina tamizada y leche (o jugo) de a poco hasta que quede una mezcla espesa.
-4. Colocar en un model enmantecado y enharinado y llevarlo al horno medio durante 45 minutos.
+4. Colocar en un molde enmantecado y enharinado y llevarlo al horno medio durante 45 minutos.
