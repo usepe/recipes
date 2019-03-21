@@ -27,22 +27,22 @@
 2. Calentar unos minutos
 
 #### Relleno:
-1. En un sartén a fuego medio, poner el aceite vegetal
-2. Agregar la cebolla, las arvejas, los hongos y finalmente el jamon
-3. Agregar sal y pimienta
-4. Bajar el fuego al minimo
-5. Agregar el arroz e integrarlo
-6. Agregar una cucharada de la salsa
-7. Retirar y separar
+1. Picar las cebollas, cubetear el jamon, cortar los hongos en rodajas (separar)
+2. En un sartén a fuego medio, poner el aceite vegetal
+3. Agregar la cebolla, las arvejas, los hongos y finalmente el jamon
+4. Agregar sal y pimienta
+5. Bajar el fuego al minimo
+6. Agregar el arroz e integrarlo
+7. Agregar una cucharada de la salsa
+8. Retirar y separar
 
 #### Omelette:
-1. Picar las cebollas, cubetear el jamon, cortar los hongos en rodajas (separar)
-2. Mezclar (sin batir), los huevos con la leche y sal
-3. Separar en dos mitades el resultado
-4. En la sartén precalentada, agregar 1 cucharada de manteca y distribuirla
-5. Agregar la mezcla de huevo evitando que se formen burbujas
-6. Cuando tenga consistencia, agregar la mitad del relleno
-7. Cerrar por los costados
-8. Retirarlo boca abajo (por la apertura donde hay relleno)
-9. Darle forma con un papel de cocina en el plato
-10. Decorar con la salsa
+1. Mezclar (sin batir), los huevos con la leche y sal
+2. Separar en dos mitades el resultado
+3. En la sartén precalentada, agregar 1 cucharada de manteca y distribuirla
+4. Agregar la mezcla de huevo evitando que se formen burbujas
+5. Cuando tenga consistencia, agregar la mitad del relleno
+6. Cerrar por los costados
+7. Retirarlo boca abajo (por la apertura donde hay relleno)
+8. Darle forma con un papel de cocina en el plato
+9. Decorar con la salsa
